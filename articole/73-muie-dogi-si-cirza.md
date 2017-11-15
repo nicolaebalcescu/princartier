@@ -8,13 +8,13 @@ Cheche la facultate pisamas pe facultatea lui din toate zilele astea in care nu 
 
 In fine, se duc astia, eu pe capu lu Adela, Adela ca are treaba ca pula mea, astept, apar astia in cadru si fut in pula mea ditamai WWW.PRINCATIER.COM. Si nu intrau in cadru, il sun pe Farmacie, ii zic coaie dute-n sloboz ca nu se vede COMul, asta mai scrie odata, mai jos pula mea. Sa vezi...
 
-![](images/73-1.jpg)
+[[/imagini/73-1.jpg|MUIE DOGI si cirza]]
 
-![](images/73-2.jpg)
+[[/imagini/73-2.jpg|MUIE DOGI si cirza]]
 
-![](images/73-3.jpg)
+[[/imagini/73-3.jpg|MUIE DOGI si cirza]]
 
-![](images/73-4.jpg)
+[[/imagini/73-4.jpg|MUIE DOGI si cirza]]
 
 Si dute-n pula mea, aveam atat coaiele, intru pe blog, vad vro 50 de romani online, maaaamaaa, am dat lovitura. Lovitura pula ca apare brusc unu coaie si nu siu cine sloboz era da sa-mi bag pula de nu mi-a stricat ziua.
 

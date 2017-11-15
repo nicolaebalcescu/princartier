@@ -1,80 +1,80 @@
-1-primul-post-trebuie-mereu-sa-fie-ceva-special.md
-2-teo-de-la-2-sa-stie-lumea-de-cine-sloboz-vorbesc.md
-3-prima-mea-experienta-sexuala.md
-4-sa-ti-tremure-mana-n-pizda.md
-5-mortii-ma-ti-de-poponar-prost.md
-6-ah-era-sa-te-nimereasca.md
-7-sa-ma-fut.md
-8-cum-sa-primesti-un-sex-oral-de-calitate.md
-9-dar-ai-zis-doar-capu-de-ce-ai-bagat-o-pe-toata.md
-10-o-pizda-obraznica-pe-nume-adriana-ah.md
-11-sa-ma-fut-in-viata-ta.md
-12-un-pularau-cu-pizde-multe-e-la-fel-de-curva-ca-o-pizda-cu-multi-pularai.md
-13-nu-exista-roman-imputit-nu-hai.md
-14-ce-este-cacatul-din-curul-lui-mariusica.md
-15-episodul-64.md
-16-muie-in-cinematograful-mortii.md
-17-pizda-stil-gogosar.md
-18-stai-ma-cuminte-in-mortii-mati-ca-nu-vreau-sa-ma-intorc-la-puscarie.md
-19-mama-lu-farmacie-farmacie-are-carne-de-mici-pe-pula.md
-20-noua-moda-fi-pe-val.md
-21-sloboz-la-tava-madalina.md
-22-la-multi-ani-bai-pula-de-porc-te-iubim-in-cur.md
-23-romania-e-o-pizda-proasta-farmacie-sa-traiasca-pula.md
-24-stiu-zi-fa-stiu.md
-25-de-pizda-proasta-nu-fugi-ii-dai-pula-apoi-papuci.md
-26-imi-bag-pula-in-morti-ma-ti-de-tarfa-proasta.md
-27-interviu-cu-cheche-mcpulamea-s.md
-28-ma-luat-curu-pe-dinainte.md
-29-hai-sa-nu-ne-cacam-in-sus-ca-ne-sterge-dumnezeu-la-cur.md
-30-interviu-cu-franco-belea-baiatu-de-catifea.md
-31-nu-faci-sex-in-trei-cu-mos-craciun-ca-ti-da-sangele-n-pizda.md
-32-cand-te-grabesti-se-lasa-cu-cacat.md
-33-craciun-fericit-in-pula-mea.md
-34-am-ce-fute-de-craciun-hai-cu-la-tata-sa-va-nvete-politete.md
-35-ce-vroiai-sa-ti-aduca-mosu.md
-36-sunt-atat-de-proaspat-gagi-vai-cine-ma-fute-cine.md
-37-o-pizda-doua-pizde-si-cu-framacie-trei-cacat.md
-38-1-ianuarie-ziua-in-care-pizda-a-avut-gust-de-sampanie.md
-39-zapada-cu-sange-rece.md
-40-topu-meu-de-personalitati-libidinoase.md
-41-sunt-un-pescarus-esti-pe-ma-ta.md
-42-auzi-nu-ti-miroase-a-cacat-mda.md
-43-nu-barbieri-motanelu.md
-44-si-dumnezeu-doarme-gagi-doarme-pe-carne-vie.md
-45-she-nikita-male.md
-46-contul-tau-hi5-a-fost-anulat-nu-mai-existi.md
-47-azi-e-ziua-mea-fac-15-ani-zambeste-te-stiu-sute-de-oameni.md
-48-e-o-tara-in-care-foamnea-nu-are-constiinta.md
-49-analize-cu-surprize.md
-50-super-pizda-frate-acum-si-cu-clitoris-extensibil.md
-51-martisoare-gratarele-si-pizda-fututa-bine.md
-52-aventurile-unei-super-pizde-una-retardata.md
-53-inca-una.md
-54-cine-sloboz-sunt-cercetatorii-britanici.md
-55-hai-la-barfa-neamule.md
-56-timpuria-pula-n-pizda.md
-57-turma.md
-58-pornografie-vs-curvasarie.md
-59-ai-bricheta-ai-lumina.md
-60-e-ceva-putred-in-danemarca.md
-61-ba-ce-generatie-de-idioti-mai-sunteti-si-voi.md
-62-un-barbat-in-fata-pulii-e-doar-o-pizda-speriata-am-revenit-mancami-ai-pula.md
-63-si-a-dat-demisiaaaaaaaaa.md
-64-catuse.md
-65-cu-mainile-curate-si-pula-mea.md
-66-nicolae-la-mare-bani-olae-pizde-droaie-episodu-nambar-uan.md
-67-nicolae-la-mare-bani-olae-pizde-droaie-episodu-nambar-tu.md
-68-poveste-pe-pula-mea-ce-sloboz-inseamna-asta.md
-69-sa-ti-pierzi-veregheta-cand-bagi-degetu-n-pizda-lu-vre-una-ironic-nu.md
-70-cel-mai-celebru-om-de-rand.md
-71-momentan-cheche-ma-intreaba-daca-taximetristu-era-tigan-ce-pula-mea-titlu.md
-72-aaaaaaaaa.md
-73-muie-dogi-si-cirza.md
-74-titlu-pula-mea-despre-discernamant-si-tara-pulii-mele.md
-75-fimiar-scarba-de-femeia-asta.md
-76-nicolaeeeeeee-te-ai-imbatat-nicolaeeeeee.md
-77-in-padure-la-spital-cu-cacat-la-cur-si-bere.md
-78-arma-mea.md
-79-auzi-tu-sti-cine-se-fute-cu-seful-tau.md
-80-vreau-sa-conduc-locomotiva.md
+- 01. [Primul post trebuie mereu sa fie ceva special](articole/1-primul-post-trebuie-mereu-sa-fie-ceva-special.md)
+- 02. [Teo de la 2, sa stie lumea de cine sloboz vorbesc!](articole/2-teo-de-la-2-sa-stie-lumea-de-cine-sloboz-vorbesc.md)
+- 03. [Prima mea experienta sexuala](articole/3-prima-mea-experienta-sexuala.md)
+- 04. [Sa-ti tremure mana-n pizda...](articole/4-sa-ti-tremure-mana-n-pizda.md)
+- 05. [Mortii ma-ti de poponar prost!](articole/5-mortii-ma-ti-de-poponar-prost.md)
+- 06. ["Ah era sa te nimereasca!"](articole/6-ah-era-sa-te-nimereasca.md)
+- 07. [Sa ma fut](articole/7-sa-ma-fut.md)
+- 08. [Cum sa primesti un sex oral de calitate?](articole/8-cum-sa-primesti-un-sex-oral-de-calitate.md)
+- 09. ["Dar ai zis doar capu, de ce ai bagat-o pe toata?"](articole/9-dar-ai-zis-doar-capu-de-ce-ai-bagat-o-pe-toata.md)
+- 10. [O pizda obraznica pe nume Adriana! Ah.](articole/10-o-pizda-obraznica-pe-nume-adriana-ah.md)
+- 11. ["Sa ma fut in viata ta!"](articole/11-sa-ma-fut-in-viata-ta.md)
+- 12. ["Un pularau cu pizde multe e la fel de curva ca o pizda cu multi pularai"](articole/12-un-pularau-cu-pizde-multe-e-la-fel-de-curva-ca-o-pizda-cu-multi-pularai.md)
+- 13. [Nu exista roman imputit nu? Hai...](articole/13-nu-exista-roman-imputit-nu-hai.md)
+- 14. [Ce este cacatul din curul lui Mariusica?](articole/14-ce-este-cacatul-din-curul-lui-mariusica.md)
+- 15. [Episodul 64!](articole/15-episodul-64.md)
+- 16. [Muie in cinematograful mortii!](articole/16-muie-in-cinematograful-mortii.md)
+- 17. [Pizda stil gogosar!](articole/17-pizda-stil-gogosar.md)
+- 18. ["Stai ma cuminte in mortii mati ca nu vreau sa ma intorc la puscarie!"](articole/18-stai-ma-cuminte-in-mortii-mati-ca-nu-vreau-sa-ma-intorc-la-puscarie.md)
+- 19. [Mama lu' Farmacie! Farmacie are carne de mici pe pula!](articole/19-mama-lu-farmacie-farmacie-are-carne-de-mici-pe-pula.md)
+- 20. [Noua moda, fi pe val!](articole/20-noua-moda-fi-pe-val.md)
+- 21. [Sloboz la tava... Madalina!](articole/21-sloboz-la-tava-madalina.md)
+- 22. [La multi ani bai pula de porc! Te iubim in cur](articole/22-la-multi-ani-bai-pula-de-porc-te-iubim-in-cur.md)
+- 23. [Romania e o pizda proasta! Farmacie, sa traiasca... Pula!](articole/23-romania-e-o-pizda-proasta-farmacie-sa-traiasca-pula.md)
+- 24. [Stiu? Zi fa stiu?](articole/24-stiu-zi-fa-stiu.md)
+- 25. ["De pizda proasta nu fugi, ii dai pula, apoi papuci!"](articole/25-de-pizda-proasta-nu-fugi-ii-dai-pula-apoi-papuci.md)
+- 26. [Imi bag pula in morti ma-ti de tarfa proasta!](articole/26-imi-bag-pula-in-morti-ma-ti-de-tarfa-proasta.md)
+- 27. [Interviu cu... Cheche McPulamea's!](articole/27-interviu-cu-cheche-mcpulamea-s.md)
+- 28. [Ma luat curu' pe dinainte](articole/28-ma-luat-curu-pe-dinainte.md)
+- 29. [Hai sa nu ne cacam in sus, ca ne sterge Dumnezeu la cur.](articole/29-hai-sa-nu-ne-cacam-in-sus-ca-ne-sterge-dumnezeu-la-cur.md)
+- 30. [Interviu cu... Franco Belea baiatu' de catifea!](articole/30-interviu-cu-franco-belea-baiatu-de-catifea.md)
+- 31. [Nu faci sex in trei cu Mos Craciun ca-ti da sangele-n pizda!](articole/31-nu-faci-sex-in-trei-cu-mos-craciun-ca-ti-da-sangele-n-pizda.md)
+- 32. [Cand te grabesti se lasa cu cacat!](articole/32-cand-te-grabesti-se-lasa-cu-cacat.md)
+- 33. [Craciun fericit in pula mea!](articole/33-craciun-fericit-in-pula-mea.md)
+- 34. [Am ce fute de Craciun! Hai cu la tata sa va-nvete politete!](articole/34-am-ce-fute-de-craciun-hai-cu-la-tata-sa-va-nvete-politete.md)
+- 35. ["Ce vroiai sa-ti aduca mosu'?"](articole/35-ce-vroiai-sa-ti-aduca-mosu.md)
+- 36. [Sunt atat de proaspat gagi! Vai... Cine ma fute? Cine?](articole/36-sunt-atat-de-proaspat-gagi-vai-cine-ma-fute-cine.md)
+- 37. [O pizda, doua pizde... si cu Framacie trei! Cacat.](articole/37-o-pizda-doua-pizde-si-cu-framacie-trei-cacat.md)
+- 38. [1 Ianuarie, ziua in care pizda a avut gust de sampanie!](articole/38-1-ianuarie-ziua-in-care-pizda-a-avut-gust-de-sampanie.md)
+- 39. [Zapada cu sange rece!](articole/39-zapada-cu-sange-rece.md)
+- 40. [Topu' meu de personalitati libidinoase!](articole/40-topu-meu-de-personalitati-libidinoase.md)
+- 41. ["Sunt un pescarus!" Esti pe ma-ta.](articole/41-sunt-un-pescarus-esti-pe-ma-ta.md)
+- 42. ["Auzi? Nu-ti miroase a cacat?" Mda!](articole/42-auzi-nu-ti-miroase-a-cacat-mda.md)
+- 43. [Nu barbieri motanelu'](articole/43-nu-barbieri-motanelu.md)
+- 44. [Si Dumnezeu doarme gagi. Doarme pe carne vie!](articole/44-si-dumnezeu-doarme-gagi-doarme-pe-carne-vie.md)
+- 45. [She Nikita Male](articole/45-she-nikita-male.md)
+- 46. [Contul tau hi5 a fost anulat! Nu mai existi.](articole/46-contul-tau-hi5-a-fost-anulat-nu-mai-existi.md)
+- 47. ["Azi e ziua mea, fac 15 ani!" Zambeste! Te stiu sute de oameni.](articole/47-azi-e-ziua-mea-fac-15-ani-zambeste-te-stiu-sute-de-oameni.md)
+- 48. [E o tara in care foamnea nu are constiinta!](articole/48-e-o-tara-in-care-foamnea-nu-are-constiinta.md)
+- 49. [Analize cu surprize!](articole/49-analize-cu-surprize.md)
+- 50. [Super pizda frate, acum si cu clitoris extensibil!](articole/50-super-pizda-frate-acum-si-cu-clitoris-extensibil.md)
+- 51. [Martisoare, gratarele si pizda fututa bine!](articole/51-martisoare-gratarele-si-pizda-fututa-bine.md)
+- 52. [Aventurile unei super pizde! Una retardata](articole/52-aventurile-unei-super-pizde-una-retardata.md)
+- 53. [Inca una](articole/53-inca-una.md)
+- 54. [Cine sloboz sunt cercetatorii britanici?](articole/54-cine-sloboz-sunt-cercetatorii-britanici.md)
+- 55. [Hai la barfa neamule!](articole/55-hai-la-barfa-neamule.md)
+- 56. [Timpuria pula-n pizda!](articole/56-timpuria-pula-n-pizda.md)
+- 57. [Turma](articole/57-turma.md)
+- 58. [Pornografie vs. Curvasarie](articole/58-pornografie-vs-curvasarie.md)
+- 59. [Ai bricheta? Ai lumina!](articole/59-ai-bricheta-ai-lumina.md)
+- 60. [E ceva putred in Danemarca!](articole/60-e-ceva-putred-in-danemarca.md)
+- 61. ["Ba ce generatie de idioti mai sunteti si voi"](articole/61-ba-ce-generatie-de-idioti-mai-sunteti-si-voi.md)
+- 62. [Un barbat in fata pulii, e doar o pizda speriata! Am revenit mancami-ai pula!](articole/62-un-barbat-in-fata-pulii-e-doar-o-pizda-speriata-am-revenit-mancami-ai-pula.md)
+- 63. [Si-a dat demisiaaaaaaaaa!](articole/63-si-a-dat-demisiaaaaaaaaa.md)
+- 64. [Catuse](articole/64-catuse.md)
+- 65. [Cu mainile curate si pula mea!](articole/65-cu-mainile-curate-si-pula-mea.md)
+- 66. [Nicolae la mare, bani olae, pizde droaie! Episodu' nambar uan!](articole/66-nicolae-la-mare-bani-olae-pizde-droaie-episodu-nambar-uan.md)
+- 67. [Nicolae la mare, bani olae, pizde droaie! Episodu' nambar tu!](articole/67-nicolae-la-mare-bani-olae-pizde-droaie-episodu-nambar-tu.md)
+- 68. [Poveste pe pula mea! Ce, sloboz, inseamna, asta?](articole/68-poveste-pe-pula-mea-ce-sloboz-inseamna-asta.md)
+- 69. [Sa-ti pierzi veregheta cand bagi degetu'-n pizda lu' vre'una! Ironic nu?](articole/69-sa-ti-pierzi-veregheta-cand-bagi-degetu-n-pizda-lu-vre-una-ironic-nu.md)
+- 70. [Cel mai celebru om de rand...](articole/70-cel-mai-celebru-om-de-rand.md)
+- 71. [Momentan Cheche ma intreaba daca taximetristu era tigan!!! Ce pula mea titlu](articole/71-momentan-cheche-ma-intreaba-daca-taximetristu-era-tigan-ce-pula-mea-titlu.md)
+- 72. [aaaaaaaaa](articole/72-aaaaaaaaa.md)
+- 73. [MUIE DOGI si cirza](articole/73-muie-dogi-si-cirza.md)
+- 74. [titlu? pula mea, despre discernamant si tara pulii mele](articole/74-titlu-pula-mea-despre-discernamant-si-tara-pulii-mele.md)
+- 75. [Fimiar scarba de femeia asta](articole/75-fimiar-scarba-de-femeia-asta.md)
+- 76. [nicolaeeeeeee te-ai imbatat nicolaeeeeee](articole/76-nicolaeeeeeee-te-ai-imbatat-nicolaeeeeee.md)
+- 77. [in padure la spital, cu cacat la cur si bere](articole/77-in-padure-la-spital-cu-cacat-la-cur-si-bere.md)
+- 78. [arma mea](articole/78-arma-mea.md)
+- 79. [auzi, tu sti cine se fute cu seful tau?](articole/79-auzi-tu-sti-cine-se-fute-cu-seful-tau.md)
+- 80. [vreau sa conduc locomotiva](articole/80-vreau-sa-conduc-locomotiva.md)

@@ -24,7 +24,7 @@ Franco Belea: Stai ma ca scriu greu de la ghiuluri! Deci. fratele meu Nico. Totu
 
 Nico: Ce inseamna AMANET? cine face parte din AMANET?
 
-Franco Belea: Pai AMANET e casa noastra! Intzelegi? De ce AMANET si nu Scandalos? De ce AMANET si nu CASA? Pentru ca la AMANET iti lasi tu CASA fraere! He he he. Din AMANET face parte eu, Matey Primejdie, $pil, Scara, Pablo Camataru', Direct Dambla, Pumn Greu, Shtakie, 10 Gratii, Meqla Noua, Dj Boo-Low, FaraOase, Geena Juice, Kali Ghin-Ion, Esteban si DOn`K!
+Franco Belea: Pai AMANET e casa noastra! Intzelegi? De ce AMANET si nu Scandalos? De ce AMANET si nu CASA? Pentru ca la AMANET iti lasi tu CASA fraere! He he he. Din AMANET face parte eu, Matey Primejdie, $pil, Scara, Pablo Camataru', Direct Dambla, Pumn Greu, Shtakie, 10 Gratii, Meqla Noua, Dj Boo-Low, FaraOase, Geena Juice, Kali Ghin-Ion, Esteban si DOn'K!
 
 Nico: Multa lume, multa-n pula mea, sare banu' din cacatu' asta cois?
 
