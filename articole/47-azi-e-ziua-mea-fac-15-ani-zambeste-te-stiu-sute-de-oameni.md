@@ -1,6 +1,6 @@
 # "Azi e ziua mea, fac 15 ani!" Zambeste! Te stiu sute de oameni.
 
-!["Azi e ziua mea, fac 15 ani!" Zambeste! Te stiu sute de oameni.](/imagini/47.jpg.jpg?raw=true)
+!["Azi e ziua mea, fac 15 ani!" Zambeste! Te stiu sute de oameni.](/imagini/47.jpg?raw=true)
 
 Sati stai stai, ca te tai la celofan. Sa explic putin la lume o chestie cois, treaba cu poza asta de o am pe blog. Sub ideea de "nu fi frate prost, pe bune acum" zic celor ce interpreteaza dampulea ca, **NU SUNT EU IN EA FRATE**! Eu nu prea am poze cu mine ca nu am camera, net si astea. Am pe la tovarasi si me lene sa cer, sa bage dalea cu "stai sa caut" si pula mea. Lasa e bine asea! Povestea e alta.
 
