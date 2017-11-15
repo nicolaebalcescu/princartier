@@ -1,0 +1,15 @@
+# "Azi e ziua mea, fac 15 ani!" Zambeste! Te stiu sute de oameni.
+
+![](images/47.jpg)
+
+Sati stai stai, ca te tai la celofan. Sa explic putin la lume o chestie cois, treaba cu poza asta de o am pe blog. Sub ideea de "nu fi frate prost, pe bune acum" zic celor ce interpreteaza dampulea ca, **NU SUNT EU IN EA FRATE**! Eu nu prea am poze cu mine ca nu am camera, net si astea. Am pe la tovarasi si me lene sa cer, sa bage dalea cu "stai sa caut" si pula mea. Lasa e bine asea! Povestea e alta.
+
+Eram pe la Unirea cu o tovarasa Ioana, mergeam cu ea pana la munca la Teo sa vanda un aparat foto, ca vroia una de acolo sa il ia. Si ajuns acolo, pula mea aia nu venise la munca si ii lasase banii lu Teo, asta a luat aparatu' sa il dea lu' aia maine. Pizde complicate. In fine. In drum spre casa inapoi, Teo ca cica sa fac o poza sa vada cum se vede, in timpul asta unu', de spala parbrize pe acolo vine pe la spatele ei. Zic: "Vezi sa nu-ti ia asta aparatu'!" si zambesc. Asta panicata putin, se intoarce, se sperie si asta zice: "Nu-mi faci si mie o poza te rog, hai te rog, o stergi dupa daca e." Si se duce mai in fata. Asta se uita la mine, fac privirea aia de: "Da ma, fai o poza, da-l in mortii lui!" Si ea da sa apese pe buton, asta zice: "Azi e ziua mea, fac 15 ani!" Face poza si zice ca poate sa o stearga, multumeste si pleaca, sa spele parbrize sau nu stiu. Zic: "Nu o sterge, laso asa!" Si plecam, ajung la ea, o descarca si ma uit, nu mi-a venit sa cred sa moara mama cat ma futut poza asta.
+
+Ochii la pustiu ala care cred ca in afara de aia de pe buletin, daca o are si pe aia, nu mai avea nici o poza cu el. De ziua lui, Privirea aia cois de om sarac, de munca de copil, de oboseala si mizerie. Apoi, apoi daca te uiti sunt pizdele alea de barfesc, mosul ala ce sta si asteapta, casa poporului fix desupra capului ca o coroana. Si faptul ca oamenii stau si asteapta sa treaca masinile desi semafoarele sunt verzi. Am avut ceva flame in burta cand am vazut poza asta. Adevarat.
+
+Ma gandesc acum ca, nimeni nu cred ca are o poza cu el, poate doar prin familie sau nici aia, ma gandesc ca daca nu are si dispare odata, i se intampla ceva in pula mea, nu are nimeni o poza sa puna langa "Dat disparut", nimeni nu-l poate recunoaste. Si ma gandeam cum as fi in locul lui. Cum ai fi in locul lui. Vorba lu Grasu' "nimeni de nicaieri". Un nimeni.
+
+Pustiule daca apuci sa citesti cacatul asta, sa sti ca am facut gestul asta asa, ca nu oi fi tu mare om dar in poza aia ma simt mic pe langa tine, am pus-o sa te cunoasca lumea bai asta, sa sti ca daca te opreste cineva pe strada si te saluta sau te arata cu degetul, e din respect. Necumparat, castigat cu niste ochi sinceri.
+
+Pustiu' ala e cartierul meu. Cum il vedeti. Cum il vad si azi.

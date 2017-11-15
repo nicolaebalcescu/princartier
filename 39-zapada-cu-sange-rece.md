@@ -1,0 +1,19 @@
+# Zapada cu sange rece!
+
+Cand a nins frate ca am uitat, pe 3 parca a venit avalansa puli. E, eu pe 2 seara am fost acasa cu 1000 am stat in bucatarie si am fumat, astea. L-am dus pe asta jos si cand am urcat a sarit mama la mine ca pula mea am umplut casa de fum si ca sa deschid fereastra. Cacat. Am deschis geamu' si am inchis usa la bucatarie. Peste noaptea a nins ca la pol sa moara mama si ghici ce!? Fereastra mea a ramas deschisa, de am futut juma de bucatarie. Era zapada pana la genunchi langa aragaz. Pula mea. Mi-am luat vro doua capace tari de la mama, mancai-as ochii ei frumosi.
+
+Dar se pare ca muista asta de ninsoare a adus si bucuri, dar nu discut despre, nu uit necazurile. Sa-mi bag pula in tara noastra de noroi unde deszapezirea se face cu farasul si lopata vecinului, ca ai nostri de sus joaca solitare si fac concedii in locuri tropicale si eu nu stiu cum sa ies din casa, pe balcon sau prin scara, ca tot in zapada ajung-n pula mea de jegosi. Ma simti?
+
+Un peisaj extraordinar, tati care in criza dadeau zapada sa ajunga macar pe jos la servici, copii fericiti dar cu gust de gripa-n gat, 1000 ma suna in drum spre munca ca cica este pe la parcu’ Romniceanu’, deci omu a mers din Rahova pana pe la Municipal pe jos, oameni se impingeau la masini unu' pe alt', pluguri pula, sare pula, autoritati tot, ghici ce. Pula! Eu la televizor ii auzeam pe mai mari nostri invinovati cum dadeau vina pe vreme si conditi meteo. Ba coaie, eu stiam de la pizda aia buna de la meteo ca vine zaharia cu zile inainte, tu stiai de la aia din varful muntelui cu o saptamana inaintea mea, deci nu ma fute pe bani mei, ca nu-s curva proasta de ramburs. Astia de la stiri aratau romanu' de rand in agonia zapezi, chinuit in prima zi de munca.
+
+Mai apoi au aparut brigazile de porci, politaii pulii care dadeau amenzi si intocmeau dosare penale, da penale cois, ca pentru parcari aiurea si pula mea, le da la unii cu magazine si librari amenda ca nu si-au luat zapada din fata usi? Ba pula tu-i faci cazier lu unu' ca orasul tau este un haos de duzina? Ma da dute-n pula mea, deci aia-si vad si ei de concediul bine meritat dupa un an de munca si vii tu cu ordin de la muisti de sus sa dai amenzi? Mie cine-mi suge pula azi pentru strada asta plina de masini blocate? A? Can centru unde se vede e bine, dar dupa blocuri e o parte din Laponia bai javra.
+
+Vorbesc singur sa moara Franta. Nu se schimba nimic din pacate!
+
+Mama azi a avut o problema, a intrat in nu stiu ce dureri si pula mea d'abia se mai misca, avea ameteli si nu se mai ridica din pat. La ora 9 mancati-as pula ta am chemat salvarea. La 9 dimineata. Nici la 3 nu au venit, dupa telefoane si telefoane de insitente. Bagami-as pula-n mortii si ranitii lor. A plecat tata cu ea la spital cu taxiu' ca l-am chemat pe un tovaras sa ma ajute. Este un cacat cu care tre sa ne impacam, desi nu e bine sa ajungi la mana doctorilor. Sau a sitemului. Traind cat mai detasat de el, cat mai departe. Pentru ca te poate fute rau, pe tine si pe cei dragi tie.
+
+Imi povestea unchimiu cand eram mai mic de nustiu ce mare compozitor, nu vreau sa ma fac de cacat facand o confuzie asa ca zic doar ce am auzit de moartea lui de la el. Saracie lucie, iarna, mizerie, moartea lui. A murit singr in casa, langa, nimeni sa-i aprinda macar o lumanare. Cainele sau ia tarat pana in cimitirul saracilor trupul mort. Un final mizer pentru un mare compozitor. Azi se studiaza operele lui. Nu mai stiu cum il chema.
+
+Morala este ca asa vad eu tara asta, este tarata de un popor sub forma de "caine loial si batut" spre cimitir prin zapada rece, ucisa de o boala rara numita "sitemul in care traim". Patriotismul nu este decat oboseala cainelui. Eu un colt ce nu vrea sa stranga haina mortului.
+
+Astept sa vina astia de la spital. Pana atunci ma plimb. Cautand sa ajut masini la impins! Tu impinge-te in spre mai bine cat mai repede, ca Romania asta nu se topeste asa usor.

@@ -1,0 +1,32 @@
+# titlu? pula mea, despre discernamant si tara pulii mele
+
+Dute, in pula, mea, Romania! Cu toti muisti care te-au facut dintr-o bucata de pamant, tara tuturor cacaturilor, cacatul tuturor taranilor.
+
+De sunt plin de spume? E uite de ce, DISCERNAMANTUL! Slobozul asta de discernamant al nostru al oamenilor si in mare parte al minorilor in pula mea. Eu nu mai stiu ce sloboz inseamna minor deoarece... 1 Chehe imi spune ca atunci cand muncea la mec avea card (cand era minor, ca asta a muncit multi ani la panaramele alea, i-au crescut hamburgari pe piept in pula mea), ca ce sloboz coaie, acum esti obligat sa iti iei salariul pe card deoarece bancile si firma ta au nu stiu ce pula mea manevre si tre sa manance si ei o paine, si banii tai trebuie sa treaca prin nustiu cate comisioane si sloboz, cand TU meriti, ca membru productiv al puli tale de societate sa-ti iei banii integral pe cat muncesti in sloboz! Ca tu nu cari comisioane pentru sefii de cacat, orele in plus, conditile de sloboz si lipsa de profesionalism bagami-as pula in toata munca din romania.
+
+Sa revin la Cheche, asta sa dus cu cardu pulii sa isi cumpere nu stiu ce sloboz dintr-o benzinarie, si ii spune ala de la casa ca nu poate cumpara ca e minor si ca acel card a fost facut sa fuctioneze doar ca galeata a banilor de la mec. Deci inutil, e doar o combinatie in pula mea sa-ti mai mangleasca inca niste sute, niste zeci, niste mii de lei, asa, de pula mea, ca iti ofera niste servicii inutile. Treaba e ca motivatia legala este ca el era minor, si nu avea DISCERNAMANT sa cheltuie banii aia direct cu cardul. Dute-n mortii si ranitii matii roumeinia. De ce? Stai asa coitze.
+
+2 Cumatra vulpe, Laura Andresan, o destul de importanta pizda din peisajul romanesc, o pizda buna, din multe puncte de vedere, care cred ca a demonstra deja ca e si fata desteapta, a pornit o campanie pe site-ul ei, ii zice "Minora la ginecolog" din care tin sa citez cateva chestii:
+
+"...incercam sa castigam dreptul minorelor, posesoare de buletin, sa mearga la ginecolog. O adolescenta de 14 ani trebuie sa fie informata corect despre metodele de protectie, contraceptie si transformarile corpului ei. Legislatia din Romania ii INTERZICE acest drept. O minora este primita intr-un cabinet de obstetrica-ginecologie doar insotita de un parinte sau un tutore.
+
+Datele statistice actuale arata ca fetele isi incep viata sexuala in jurul varstei de 16-17 ani. Asadar...
+
+Sunt suficient de mari pentru sex, dar prea mici pentru o discutie lejera cu un medic specialist despre... vagin, col ulterin, protectie si contraceptie, HPV, si cele cateva milioane de bacterii, ciuperci si virusi, incadrati in atat de uzualele litere BTS (boli cu transmitere sexuala)."
+si are si o petitie sau nu stiu ce sloboz e asta etc. Tot respectul pentru initiativa asta pula mea. Dar retine gagi, legal, tu nu ai DISCERNAMAT PE PIZDA TA pana la 18 ani!
+
+Ca sa ma intelegi iti mai fut si punctu 3, cel mai important, care merge asa, fratele lu' un tovaras de-al meu sa dus cu unii la plimbare cu masina. Aia pe drum s-au hotarat sa meraga la furat roti de masina sau nu stiu ce sloboz. Niste putze de copii. 6 insi intr-o berlina. Aia mai mari, 2 la numar au dat cu mardeala, astia mici, cacati pe ei, au stat in masina. Aia doi de au furat, aveau in pula mea ani destui, 18 si 19. Astia mici, printre care si frasu' lu asta, erau MINORI adica pana in 18 ani in pula mea. Ia prins politia, ia dus la sectie, ia investigat, batut, futut in cur ce sloboz le-a mai facut acolo, cum se face la politie, baietii stiu, bagaboti pot, siiiii una peste alta au fost pusi ca martori pm. Aia doi mari – furt calificat.
+
+Treaba care e, cand au ajuns paintii acolo, sunati de un tovarash, pulaaa mea, ca aia toti s-au cacat pe ei si nu au sunat parintii si au ramas sa faca singuri declaraitii. Parintii ajunsi intr-un final au intrebat DE CE NU AM FOST ANUNTATI? DE CE NU AM FOST CHEMATI SA VEDEM CE SI CUM FAC ASTIA? raspuns: PENTRU CA AU PESTE 14 ANI SI AU DISCERNAMANT CONFORM LEGII!!!! deci du-te in morti ma-ti de curva proasta si nespalata numita justitie.
+
+Deci nu ai discernamat pe banii tai munciti, nu ai discernamat pe pizda ta in care te futi dar AI discernamant ca minor in fata legii cand comiti o infractiune. Adica la cacaturi care implica control asupra cacaturilor tale materiale si de sanatate NU AI DISCENAMANT dar cand esti la masa cu gabori se poate profita de prostia ta de copil, de naivitate, de inconstienta, de faptul ca nu ai de unde sloboz sa sti legea cand tu d'abia inveti romana si geografia la scoala, acolo se poate. La un doctor, la cumparaturi tre sa stie ma-ta ce faci, sa te monitorizeze in scop nobil, dar cand te paste puscaria in pula mea iti poti cantarii sansele SINGUR in fata unor staini pe care-i doare in pula de soarta ta??? Ce slobooooz?
+
+De menionat ca unii gabori fut oameni care pot fi iertati doar ca sa-si faca norma de "rezolvari de cazuri" pe saptamana, luna pula mea. Au fost si nenumarate cazuri prin presa in care gaborii aruncau infractiuni pe carca unor aurolaci inputiti luati de pe strada, minori si pula mea. In timp ce ala care a FURAT asculta ultimul album Bug Mafia pe casetofonul tau si se plimba prin cartier, liber si cu durere de pula in masina lu vecinu.
+
+Ma fut in tara ma-ti de inconstient dobitoc care imi votezi legi de cacat si imi futi mie kg de minciuni pe gat. Ma fut in sistemul vostru de valori prost futut in cur, fara pic de respect fata de omul de rand si fata de legile bunului simt. Ma sterg la pizdele tuturor muierilor care nu au DISCERNAMANT LA GINECOLOG cu legile voastre, ma sterg la curu lu Chehe care tre sa faca 18 ani sa-si ia o cafea de la OMV cu legile voastre si ma sterg la pula oricarui jegos care profita de copii in sectii de politie cu legile voastre de cacat.
+
+Legalizati-va singuri libertatea bai, cacati-va pe voi si invatati, ca pe tabla inmultirii, drepturile voastre de romani in pula mea, doar asa veti putea sa va castigi demnitatea in fata unor "conducatori" inculti si avari care nu dau nici o flegma jegoasa pe decenta ta ca om.
+
+Suntem un neam de copii prosti in fata unui strain de cacat numit statul roman plin de acadele ieftine gata sa ne futa in cur si ghici ce cois, habar avem daca avem discernamant sau nu!
+
+Muie garda. Astept futuva mortii in gura, inca astept acea zi...

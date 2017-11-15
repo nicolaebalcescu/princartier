@@ -1,0 +1,19 @@
+# Hai la barfa neamule!
+
+Mi-a inflorit cartierul sa moara mama, frumos arata si miroase frumos. Adevarat. In fine.
+
+Am primit un mail de la un oarecare pula mea, care ma intreaba despre barfe cois, de ce se barfeste si sloboz. Care-i treaba cu barfa?
+
+Pai cois, vine cam asa, vorba buna de la un batran: "Barfa e boala femeiasca. Si se ia prin aer", e adevarat ca uneori o mai luam si noi barbati, da pizdele numai cacatul asta-l au in cap, noi ne mai vedem si de altele, vorbim de pula mea, fotbal, cat de prost e nustiucare, ce a mai futut cutare, cacaturi d'astea, ne dam cu opinia-n balta la polici, ce mai scrie prin ziare, nu-i nimic mai marfa decat revista presei afara la o bere si o samanta. Dar noi barbatii analizam, evaluam, pula mea, nu se poate numi barfa, si daca vorbim dampulea pe cineva, este in scop de critica constructiva, a? Cum a fost asta gagi? Te-am rupt.
+
+Noi nu barfim, pizdele barfesc. Exemplu. Eram cu anturajul meu super, la scara si vorbeam de un tovaras ca-l mananca pizda de bani si pula mea, foarte indignati, ne rasteam, il injuram pe ala, pula mea. Aparent barfa, dar nu, noi cand plecam acasa nu plecam impliniti ca l-am vorbit pe ala, sau mandri ca am aflat un cacat nou despre cineva, plecam pe ganduri coaie si aprofundam si ne facem sistem imunitar din greselile si cacaturile altora. Femeile nu, sau nu toate, majoritatea pleca legume si dau barfa mai departe, nu pastreaza morala actelor in sine. Barfitoare de barfe. Vi vaca, pleci vaca.
+
+Uneori barfa e buna, eu cate odata mai spun cacaturi si uit sa zic ca sunt la misto si pula mea, lumea pune botu', ca-n ziua in care am spus serios ca Farmacie are pe spate un tatuaj cu cina cea de taina, si ca in loc de Iisus acolo, in tablou, este Merlin Menson. Si am uitat in pula mea sa zic ca-i caterinca, prosti au plecat, sa raspandit in pizda vorba si asta nu stia de ce toata lumea il ocoleste si sloboz.
+
+Odata Cheche a zis de mine ca mi-am luat BMW si pula mea, da, incredibil, la bani mei. La mine la scara chiar era un BMW a lu' vecinu', eu nu stiam ca asta a zis asta si niste muisti intr-o seara au venit vezi doamne sa ma futa pe mine, beti mache si cu scandal, d'astia de ma iubesc. Eu eram la tigare pe balcon si ma injurau si sloboz si aruncau cu pietre in masina aia, eu eram ceva gen: "Ce sloboz!?" Ma uitam la ei ca prostu, aia loveau acolo ca teroristi pana a iesit vecinu' meu Franci si ia batut de draci ia luat. Era masina lui, am aflat dupa mult timp ca Cheche a zis si astea. Pula mea.
+
+Cea mai tare barfa, am auzit-o despre mine in 117, acum ceva saptamani, cand doi pularai vorbeau despre blogu meu, gen: "Coaie e vrajeala, nu are cum!" si celalat ma apara: "Nu coaie e pe bune jur, deci sa intri, omu e penal". Eram deja cu inima cat puscaria Rahova, ce vestit sunt, sloboz. M-am dus mai aproape, sa aud, astia vorbeau aprins acolo de posturi si pula mea, pana cand ala necrediciosul zice ceva de genu: "Imi bag pula in tarfele lui ma, de prost futut." Exact asa. Mi sa unflat o vena pe gat de nervi, i-am futut mare pumn in muie, si am coborat ca muistu' la prima, nu a existat timp de reactie, cred ca si in ziua de azi se intreba cine sloboz era ala cois. Eu eram bagamias pula-n morti tai de panarama. Asa fac eu. Muie.
+
+In fine, barfa e ca un suriu cu doua taisuri, tre sa sti cum sa o faci, sau sa nu o faci, fara sa te tai. Pula mea, e complicat. Nu barfi, alege sa vorbesti despre chesti interesante in pula mea, sau caterici sau nu stiu, daca vorbesti de alti neconstructiv, se alege pula de tine. Sunt cacaturi mai marfa de vorbit decat faptele unor penali.
+
+Ia zi gagi nu zic bine? Tocmai am barfit barfa.

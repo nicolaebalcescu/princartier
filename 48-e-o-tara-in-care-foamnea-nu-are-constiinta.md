@@ -1,0 +1,9 @@
+# E o tara in care foamnea nu are constiinta!
+
+Ieri sa intamplat o treaba foarte dubioasa pe 32, adica pula mea. Ma suna 1000 sa ma intrebe ce sloboz fac, pe unde sunt, ca el e la scara si cand ajung ca are niste treaba cu mine. Eu zic ca mai am putin ca mor de foame si zic: "Aveti ceva de mancare pe acolo?" el zice: "Da, o pula, da chiar, nu iei si tu niste saoarme?" zic: "Nu am bani ba, de unde pula mea! Asta e, hai vorbim cand ajung, te pupa tata!" si ma bag iar sa ma uit pe geam. Ma ridic la Bolintineanu ca mi sa parut ca vad pe unu, in fine. Si o femeie la vro 45/50 de ani, ma ia de mana si-mi pune in palma ceva gen o hartie si zice: "Suna-ma pe numarul asta!" Si a coborat in graba. Ma uit la ea gen: "Ce pula mea?", ma uit in palma si era o hartie de 5 lei. Ma uit la ea pe geam si fac o fata si zic incet: "Adica? Pentru?" Ce pula mea, am asez jos si ma gandesc pana la prima.
+
+Care a fost faza, alta nu are cum sa fie, femeia ma auzit la telefon, la faza cu foamnea, ca nu am bani si ca-mi ghioraie stomacu. Deci am fata de sarac in pula mea daca stai sa te gandesti. Cacat.
+
+Dar daca stai sa o iei altfel te gandesti ca nu prea mai sunt oameni de genu' cois sa-ti dea bani fara sa-i poti refuza, doar din bunatate-n pula mea. E ceva rar in Bucuresti, in special Rahova. Deci pula mea nu am cheltui banii, o sa-i dau vre-unei babute sau unui cersetor mai credibil. Mie si rusine sa-mi cupar ceva din ei. In fine! Multumesc doamnei care a facut gestul, este un om rar.
+
+Deci ca concluzie, fiti buni si ganditi-va ca omu de langa care nu cere, chiar poate fi sarac si are nevoie. E o tara in care foamnea nu are constiinta!

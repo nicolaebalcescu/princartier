@@ -1,0 +1,5 @@
+# She Nikita Male
+
+Deci am vazut-o pe Nikita pe strada frate, pe la Romana vorbea cu niste florari, imbracata in fusta de mi-a tremurat Cola-n mana, se intampla cu mult timp in urma, dar a venit vorba de ea acum ceva zile si iar am cautat-o pe net. Pe "femeia" asta no inghit nici cu cinci chile de lamaie, ma pasioneaza felul ei de a fi. Proasta. Niki ne e dor de tine coaie, mai vino pe la tv sa moara mama, sa te mai admiram putin la un pahar de tarie si zeama de varza. Dam o bere, hai fi baietas si vino.
+
+Si ca tot venii vorba, de femei cu pula, sau care vor pula in loc de pizda, si invers baiatei cu pizda si astea, frate, eu sincer nu inteleg, sunt oarecum prea conservator cand vine vorba de carne. Ma gandesc ca poate nu-s destul de intelegator cu toate bubele unor oameni. Un prieten a dat de o "pizda" d'asta cu pula odata si a ramas socat. Am ramas si noi cand am auzit. Voi ce pareri aveti frate de chestile astea, schimbarea de sex si cacaturi de genu ca-s cuios. Acum serios, luand cacatu' asta ca pe un mare fenomen care este. Ca nu e vorba de cateva sute de poponari si lesbience, sunt mult mai multi. Ce sloboz?

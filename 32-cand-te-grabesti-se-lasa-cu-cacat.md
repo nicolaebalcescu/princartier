@@ -1,0 +1,15 @@
+# Cand te grabesti se lasa cu cacat!
+
+Alta treaba ca ma ramas in urma. A vorbit fratele tau cu Adriana, invitatie la ea de revelion, pula mea astea, eu ma duc cu Teo dar am zis sa vad ce propune, petrec, nu sunt asa facscinat, dar a fost un moment bun sa vorbesc cu asa sa ma vad cu ea. Sa pula mea, dau si eu o buca. Si s-a dat.
+
+Femeia zice sa ne vedem undeva pe la Margeanului sa halim o pizza. Fie, mergem halim o pizza, nota 10 la Picadili, o nebunie cum e sa mor, si sti cum e pe stomacu plin merge o tigare si o pizda si iar o tigare. Asa ca ma risc sa merg cu nebuna la Farmacie, ca batranii lu' asta sunt la tara si pula mea. Adriana ca nu vrea, ca se duce acasa, dar am convins-o ca ce pula mea, sunt baiat degeaba? Tre sa vrajesti, sa-i vorbesti ca la printese gagi. In fine.
+
+Am ajuns la asta care mancase nu stiu ce pastile cu Cheche si se uitau la desene animate in sufragerie si mancau muraturi, pula mea. Merg cu asta in dormitor si o iau usor, ea ma ia ca: "Nico, ultima data te lingeai cu una in fata mea, ca ai fost nesimtit ca nu te iert, ca pula mea, ca nu vreau, ca nu am chef, ca nu sti sa desfaci un sutien, ca ai prezervativ?"" Hopa, pizda era uda plici. Frumoasa si grasuta cum are ea pizda, proaspata, dusata, rasa, o nebunie de pizda ca o savarina zemoasa de iarna. Am lins la ea cu o pofta, vai! Am ragait a pizda vorba lu' fratele Franco. Apoi i-am dat cu pula la gurita, ca nu se putea, vroiam sa ma suga, eram asa tare vroiam gura aia cald-n pula. Ma lins pe coaie asa mult, de am simtit scuipatul ala pana in cur.
+
+Dar Adriana era pusa pe ceva mai dubios. Si intru in ea incet asa, fute tata clasic la fetita, cand fetita incepe si ma zgarie incet pe buci, zic: "Sloboz, baga mai tare, vrea salbaticiune, ii dam primitiv pula!" Si fute tata la tarfa, tare sa moara copilasii mei, tare! Transpirat astea. Cand femeia ma ia de par, ma trage si sopteste cu saliva-n ureche: "Vreau pe la spate Nico, in cur, acum, acum!" Aolo, aolo! Dau pizda pe burta, lasa curu moale frumos asa, si intru in gaozu' ala cald si stramt, si fute Nicopulis ca un zeu pe caii destinului imprevizibil. Di! Di fa futu-ti pe ma-ta.
+
+Fata capra, pula belita in transa, miscari de sarpe, degete la pizda, nebunii. Termin incet asa, de mi-a zvacnit pula original si dau sa scot incet. O intorc gafaind, ea la fel terminata, ca terminase; ma asez peste ea, ma uit in ochii ei sa ii fut o limba-n gura si ea imi zice: "Miroase urat Nico!" Si da, putea a cacat. Si nu de la mine...
+
+Pula plina de cacat, toata pizza pe pula mea, aveam prezervativ dar totusi. Femeia sa lasat la gaoz asa mult de nu-l mai simtea, si i-am futut si o inimioara de cacat si lu Farmacie pe cearceaf. Am acoperit discret, am fugit la baie, am tras un dus cu pizda. Se intampla ce pula mea. Cand te grabesti se lasa cu d'astea.
+
+Acum sunt la Farmacie si o asteptam pe una cu pulile steaguri de juma de ora, si aia nu mai apare ca e "pe teren" cu unu. Face o muie de muie, spune Framacie, care va saluta cu aceasta ocazie inedita si cu pula lovind incet de masa. Ie! Urati-ne bafta, sper sa nu futem vro laba pana nu vine muista aia.

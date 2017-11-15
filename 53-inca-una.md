@@ -1,0 +1,5 @@
+# Inca una
+
+O intreb aseara pe Teo ce mai face pretena mea Ali, si-mi zice faza proaspata. Ele la munca au ecusoane, ca in orice firma respactabila, sa nu va ganditi ca e salon de masaj d'ala de ti-o sug prostele dupa ce-ti freaca umerii, e cu chimeoterapie, relaxare sloboaze d'astea. In fine si intra unu, se uita la asta si zice: "Buna ziua, domnisoara... (citeste) Alina, nu va suparati, daca as bla bla bla”. Asta ii raspunde si vine la Teo, ca: "Fata nu stiu de unde sa-l iau pe ala, imi stia numele fata, nu-mi vine sa cred!" Teo zice: "Fa in mortii tei, il ai scris pe ecuson in pizda mati de proasta". Ma rog, poate nu ia zis asa porcos, dar oricum. Asta pune o fata de iapa satisfacta si baga un: "Da" lung si pleaca. Incredibil dar trist de adevarat.
+
+Acum ceva ani a avut un gagic, un mulatru' care ia zis ca el e 50 Cent, si ea si pana azi crede ca el era ala, ca si id-ul de mess era ceva gen "50cent_pulamea". Si ca nu are cum sa nu fie el. Plange cand asculta 21 questions aia, ca cica e piesa lor. Atat in pula mea! Imi dau lacrimile.

@@ -1,0 +1,9 @@
+# Ma luat curu' pe dinainte
+
+Eram cu Teo ieri la ea, in ucigasele ei motoare, ca are coapsele alea ca niste uzine de pofta sa-ti futi sufletul si pula in ea. Si ma lingea asa frumos, ador sa se opreasca in timp ce ma fute si sa mi-o mai suga putin, apoi iar ma lua in pizda ei, ba si ce frumos curgea pizda aia cois, era asa uda si hapsana. Si apoi iar baga pula in gura plina de slobozu ei si o lingea apasat ca un drac inpielitat, musca usor, si lua cate un coi in gura si-l lingea pana-l simteam langa tampla-n pula mea. Suge pula ca o tarfa regala, o uda bine si o scuipa, rea asa, este o chestie ca pizda sa dai un inteles pulii cand o sugi, sa-i futi personalitate si sa o sugi intr-o comunicare non verbala. Muia este ceva adanc dragi mei, si nu ma refer la deepthroat, ma refer la muie ca la un univers. NU, nu sunt drogat, sunt doar putin beat si meditez la mistere pizdii. Si pulii!
+
+Da, sa revin la Teo, cum se delecta ea cu pula mea de m-a facut iar sa ma simt un domn pervers ce fute o fetita inocenta, o plamuiam incet asa pe cur si mai ii futem o palma peste fata, cateva degete in gura, dinti stransi in jurul sfacurilor. Creste caldura, transpirasem amundoi si miscarile erau din ce in ce mai in forta, dadeam la pizda ca un taur, spre moartea toredorului fututi mortii ma-ti de pizda frumoasa, zoioasa si dulce cand...
+
+M-am basit coaie...
+
+Si a mirosit a cacat d'ala prost-n pula mea si sa dus pulii in sloboz toata faza. Stateam in curu gol fumam si asteptam sa se aeriseasca camera. Am continuat dupa, dar nu a mai fost asa de penala, a fost mai tehnica pizda. Sa-mi baga pula-n curu meu de prost cacacios. Data viitare o fut in cur, asa de ciuda, sa ma razbun ca a ras in sloboz de mine de i-au sarit muci din nas. O basina nu aprinde atmosfera desi arde. Pula mea.

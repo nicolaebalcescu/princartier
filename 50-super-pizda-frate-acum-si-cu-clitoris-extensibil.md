@@ -1,0 +1,11 @@
+# Super pizda frate, acum si cu clitoris extensibil!
+
+Unu din San Francisco se chinuie sa vanda asta, o canapea stil pizduca, facuta la scoala de arte unde o arde el. Foarte futuristi aia p'acolo. Trebuia sa faca mai multe.
+
+Ma gandesc ce frumos ar fi sa am o d'aia, sa ma uit linistit la tv gen: "Ce sa fac frate, uite-s in pizda, ma uit la meci, mananc niste floricele." Sau sti ca daca vin tovarasi la tine toti vor vrea sa stea-n pizda ta, vor zice ce comoda e, si poate se intampla sa o murdareasca sau astea gen: "Ce pula mea ai facut ba muistule, mi-ai varsat cafea in pizda!" sau "Vezi ca ti-a scapat telefonu' in pizda mea aseara, l-am gasit de dimineata cand dadeam cu aspiratoru'.", "Nu sari in pizda ca se rupe Andrei!", "Mi-a vomitat unu pe pizda aseara", "Nu fuma in pizda, ca-ti cade scrum pe buze si o strici, boule!", "Nu avem loc amundoi!" Si alte chesti de genu'.
+
+Eu as vrea sa am o d'aia pentru placea de a spune: "In pizda!" Ca ma tot intreaba mama de cacaturi prin casa, unde e aia, unde e aia si eu zic canu stiu, si ma ia cu: "Tu nu sti nimic in casa asta?" As putea sa-i spun direct daca ma intreba gen: "Nico, unde-i feonu'?" si eu zic: "In pizda mama! In pizda."
+
+Vine una pe la tine si se aseaza, sub ideea ca vrea sa o futi pe noua ta canapea, ca o excita, si tu esti prea respectuos fata de ea si zici: "Nu in pizda gagi, hai in dormitor!" Tota lumea te va sti cel care ai o mare pizda acasa, toti vor face glume proaste si veti rade impreuna, toti se vor simti comozi in ea, dupa bairame va fi bataie pentru cine sa doarma in ea. Este mobilierul de vis. Cumparal acum! Se poate gasi la orice biserica crestin ortodoxa din Sectorul 5 Bucuresti. Pentru adevaratii barbati din Romania.
+
+Astept modelul penis cu perna intre coaie pufoase si dulapior la ata puli, in care sa-ti bagi pantofiorii, si o paturica alba in forma de picatura de sloboz, sa nu i se faca frig copilasului in timpul noptii. Asta pentru un copil adevarat, sa stie de unde sloboz a venit si unde se duce daca ma supara.
